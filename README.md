@@ -10,16 +10,16 @@ Sou entusiasta de tecnologia e, com a graduação em ADS, busco consolidar minha
 
 ## Atuação profissional
 
-🛍️ Analista de Inteligência de Vendas Júnior - Ancar (09.2024 - Atual)
-🏥 Analista de Inteligência Comercial Júnior - Sami (03.2022 - 01.2023)
-🏥 Estagiário de Inteligência Comercial - Sami (09.2021 - 03.2022)
+🛍️ Analista de Inteligência de Vendas Júnior - Ancar (09.2024 - Atual)  
+🏥 Analista de Inteligência Comercial Júnior - Sami (03.2022 - 01.2023)  
+🏥 Estagiário de Inteligência Comercial - Sami (09.2021 - 03.2022)  
 
 ## Formação Acadêmica
 
-🗞️ Tecnólogo em Análise e Desenvolvimento de Sistemas - Estácio (04.2026 - 10.2028)
-🗞️ Bacharelado em Engenharia Ambiental - UNESP (07.2017 - 12.2024)
+🗞️ Tecnólogo em Análise e Desenvolvimento de Sistemas - Estácio (04.2026 - 10.2028)  
+🗞️ Bacharelado em Engenharia Ambiental - UNESP (07.2017 - 12.2024)  
 
 ## Trabalhos Voluntários
 
-🤝 Loja Institucional - Hospital Infantil Boldrini (04.2024 - Atual)
-🤝 Professor de Física - Cursinho GeraBixo (01.2018 - 01.2019)
+🤝 Loja Institucional - Hospital Infantil Boldrini (04.2024 - Atual)  
+🤝 Professor de Física - Cursinho GeraBixo (01.2018 - 01.2019)  
