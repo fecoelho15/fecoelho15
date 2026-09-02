@@ -10,7 +10,7 @@ Sou entusiasta de tecnologia e, com a graduação em ADS, busco consolidar minha
 
 ## Atuação profissional
 
-🛍️ Analista de Inteligência de Vendas Júnior - Ancar (09.2024 - Atual)  
+🛍️ Analista de Inteligência de Vendas Pleno - Ancar (09.2024 - Atual)  
 🏥 Analista de Inteligência Comercial Júnior - Sami (03.2022 - 01.2023)  
 🏥 Estagiário de Inteligência Comercial - Sami (09.2021 - 03.2022)  
 
